@@ -1,1 +1,1 @@
-<meta http-equiv="refresh" content="0;http://vutyabaev.github.io/#.html">
+<meta http-equiv="refresh" content="0;http://vutyabaev.github.io/#.ht>
